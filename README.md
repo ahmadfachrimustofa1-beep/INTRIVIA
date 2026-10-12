@@ -10,3 +10,6 @@ INTRIVIA 2026 seru banget, banyak pelajaran yang bisa saya dapatkan dalam rangka
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Kesan saya di cluster 2 yaitu saya sangat bersyukur bisa dibimbing oleh kakak kakak mentor karena selalu meluangkan waktunya untuk kita mahasiswa baru. Mengingatkan, menemani dan membagikan pengalaman pengalaman kakak tersebut kepada adik adiknya. Untuk teman teman dari cluster 2 sangat seru dan masih ada beberapa teman yang malu dan canggung ngobrol bersama. Saya menyadari bahwa kita mahasiswa memiliki keluarga besar departemen teknik informatika dan merasakan hal itu. Pesan saya Semangat terus untuk teman teman cluster 2 dan Sukses selalu semua. 
+
+## Harapan Kuliah 
+Harapan saya selama berkuliah di FILKOM UB adalah saya bisa berani mencoba, meng-explore sebanyak banyaknya dan bisa mendapatkan banyak pengalaman dan pelajaran bersama orang orang yang saya banggakan.  
